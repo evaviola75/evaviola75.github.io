@@ -1,1 +1,1 @@
-# Sebastiao Salgado - Ein Held der heutigen Zeit
+# Sebastiao Salgado - Ein Held des 21sten Jahrhunderts
